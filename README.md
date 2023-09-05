@@ -1,0 +1,1 @@
+# bright_idea_consultingNM2023
